@@ -33,3 +33,4 @@ By Unknown author - U/17 Team Photo. 1945. [Archive website](https://commons.wik
 - [national-cancer-institute-9dxalrR0xFI-unsplash.jpg](https://unsplash.com/photos/9dxalrR0xFI) By National Cancer Institute
 - [Four NASA astronauts and members of the Astronaut Class of 2013](https://www.nasa.gov/image-feature/four-nasa-astronauts-and-members-of-the-astronaut-class-of-2013)
 (iss060e080523.jpg) Four NASA astronauts, all members of the Astronaut Class of 2013, pose for a portrait aboard the International Space Station. Editor: Mark Garcia. Last Updated: Sep 26, 2019. Date: Sept. 25, 2019
+- [Water Droplet](https://www.pexels.com/photo/blue-board-with-water-dew-closeup-photography-339119/) by Vlad Kovriga
